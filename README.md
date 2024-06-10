@@ -3,7 +3,7 @@
 
 ## Sobre mí
 
-Me llamo Lourdes, amo mucho los perros y lo que me gusta hacer es estudiar, hacer ejercicios y pasar rato con las personas que quiero 
+Me llamo Lourdes, tengo 17 años, me gustan mucho los perros y lo que mas me gusta hacer es estudiar, hacer ejercicios y pasar rato con las personas que quiero 
 
 ## Gustos
 
