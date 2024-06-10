@@ -17,5 +17,4 @@ Me llamo Lourdes, tengo 17 años, me gustan mucho los perros y lo que mas me gus
   
 ## Gracias por visitar mi perfil!
 
-![Despedida
-(https://images.app.goo.gl/F9MEqQkfJUcqGCq96) 
+![Imagen](https://phantom--elmundo-unidadeditorial-es.cdn.ampproject.org/i/s/phantom-elmundo.unidadeditorial.es/0e289a6f0a213cb657f63d5b19a95ed9/crop/142x20/2990x1919/resize/828/f/webp/assets/multimedia/imagenes/2024/03/29/17117084419730.jpg) 
