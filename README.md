@@ -17,4 +17,5 @@ Me llamo Lourdes, amo mucho los perros y lo que me gusta hacer es estudiar, hace
   
 ## Gracias por visitar mi perfil!
 
-!Despedida](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.istockphoto.com%2Fes%2Ffotos%2Fgracias-en-espa%25C3%25B1ol&psig=AOvVaw3Lpw9SQsDrgK4Vlg7neFBZ&ust=1718071405212000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCLCMvPD4z4YDFQAAAAAdAAAAABAE) 
+![Despedida
+(https://images.app.goo.gl/F9MEqQkfJUcqGCq96) 
